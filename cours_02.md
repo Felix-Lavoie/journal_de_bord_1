@@ -6,11 +6,11 @@ Exemple:
 ### [Bulle](https://www.onf.ca/interactif/bulle/) 
 L'oeuvre *Bulle* m'interpelle beaucoup puisque c'est une oeuvre interactive qui porte un message fort. En effet, elle tente de nous sensibiliser aux enjeux climatiques. Prendre position et défendre des valeurs par l'art est l'un des aspects du multimédia qui m'intéresse beaucoup. 
 
-### Lien 1 
-Expliquer pourquoi vous avez choisi ce lien. 
+### [destiny 2](https://www.bungie.net/7/en/Destiny/NewLight)
+Le jeux destiny 2 a des concept art qui sont magnnifique et le style employer par les artistes qui les font m'interpelle. 
 
-### Lien 2 
-Expliquer pourquoi vous avez choisi ce lien.
+### [stray](https://stray.game/) 
+Le jeux Stray est graphiquemet bien réussit, 
 
 ### Lien 3 
 Expliquer pourquoi vous avez choisi ce lien.  
