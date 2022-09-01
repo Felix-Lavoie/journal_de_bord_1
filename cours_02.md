@@ -10,7 +10,7 @@ L'oeuvre *Bulle* m'interpelle beaucoup puisque c'est une oeuvre interactive qui 
 Le jeux destiny 2 a des concept art qui sont magnnifique et le style employer par les artistes qui les font m'interpelle. 
 
 ### [stray](https://stray.game/) 
-Le jeux Stray est graphiquemet bien réussit, 
+Le jeux Stray est graphiquemet bien réussit et le jouer a plusieur opportuniter pour interagire avec le décors.
 
 ### Lien 3 
 Expliquer pourquoi vous avez choisi ce lien.  
