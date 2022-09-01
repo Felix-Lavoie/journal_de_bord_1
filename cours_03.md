@@ -2,19 +2,19 @@
 ## Plan de présentation
 
 ### Présentation
-Parlez de vous. 
+Félix aime jeux vidéo, anime, sport. 
 
 ### Intérêts dans le domaine
-Parlez de vos intérêts en multimédia. 
+les jeux vidéo, interaction avec le public IRL. 
 
 ### Emplois qui vous intéressent
-Nommez deux emplois.
+designer graphique, qqchose avec les jeux vidéo.
 
 ### Identification
-Nommez une entreprise et un artiste auxquels vous vous identifiez et expliquez pourquoi. 
+Ubisoft,dello_jelloz. 
 
 ### Dans 5 ans
-Où vous voyez-vous dans 5 ans? 
+sure le marchez du travaille? 
 
 ### Projets
-Expliquez un ou des projets que vous aimeriez faire. 
+destiny 2, un projet IRL. 
