@@ -15,9 +15,9 @@ Le jeux Stray est graphiquemet bien réussit et le jouer a plusieur opportuniter
 ### [avatar](https://www.youtube.com/watch?v=5PSNL1qE6VY) 
 Les effets spéciaux dans ce film son magnifique et il Y a surement beacoup a apprendre sure un projet aussi gros.  
 
-### Lien 4 
-Expliquer pourquoi vous avez choisi ce lien. 
+### [hollow knight](https://hollowknight.fandom.com/wiki/Hollow_Knight_(game))
+Le style artistique de ce jeux est très differant comparer a mon style artistique, il y a donc plusieurs chose que je pourrait apprendre de ce jeux. 
 
-### Lien 5 
-Expliquer pourquoi vous avez choisi ce lien. 
+### [centre des science](https://www.centredessciencesdemontreal.com/?gclid=EAIaIQobChMI05Hq9bn0-QIVf-bjBx2w4gg-EAAYASAAEgJGUfD_BwE)
+Le domaine du multimedia dans ce projet est très différent que tout ce que j'ais déjais vécu, donc il y a surement beacoup a apprendre sur un projet comme celui-ci. 
 
