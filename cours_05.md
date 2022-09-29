@@ -2,10 +2,12 @@
 ## Rétrospective de la présentation 1
 
 ### Points forts
-Nommer deux points forts de votre présentation. 
+La préscence d'image original qui ont un impact sur la présentation. 
+La préscence de blague drole et originle.
 
 ### Points à améliorer
-Nommer deux points à améliorer de votre présentation et expliquer comment vous allez les travailler pour les prochaines présentations. 
+La longeur de la présentations. Je pourrais rajouter plus de slide et les fournir de plus d'information.
+La beauter global de la présentation. Je pourrais passer plus de temps sur la façon d'on la présentation est présenter.
 
 ### Présentation préférée
-Quelle présentation avez-vous préféré et pourquoi? 
+La présentations de Jacob, car elle était drole et original. Elle comportait plusieurs élément qui étais pertinant a la présentation? 
